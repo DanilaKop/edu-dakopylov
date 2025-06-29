@@ -1,0 +1,1 @@
+Измененный текст в conflict-branch
