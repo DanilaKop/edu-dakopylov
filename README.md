@@ -1,1 +1,1 @@
-Rep for support talents
+Rep for support talents by Danila Kopylov
